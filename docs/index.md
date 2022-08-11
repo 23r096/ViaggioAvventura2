@@ -4,5 +4,5 @@
 
 
 
-# [Barattolo](https://www.notion.so/alfredfilimon/2710edced8db4f55b56341b97187b484?v=9215950047254c54beff24b9804eedd0)
+# [Barattolo](https://alfredfilimon.notion.site/2710edced8db4f55b56341b97187b484?v=9215950047254c54beff24b9804eedd0) 
 
